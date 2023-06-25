@@ -1,0 +1,1 @@
+My name is Doris. I am 23 years old and born in Qingdao. I graduated from Hebei University of Science and Technology. My major is English. And I got my bachelor degree after my graduation. I also studied Audit in Hebei Normal University of Science and Technology.
